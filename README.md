@@ -1,5 +1,10 @@
 # wiki
 
+
+my web https://games.igy-apps.com/cloudpc/
+
+
+
 online apps
 
 https://games.igy-apps.com/cloudpc/index.php/2022/11/24/online-apps/   
